@@ -28,3 +28,5 @@ A: No, GoldCrap is a pre-mined token. You can get it by purchasing or earning th
 
 Q10: How do I join the GoldCrap community?
 A: Follow us on [social media platforms] and participate in our fun events and discussions. Everyone is welcome to be part of the GoldCrap journey!
+
+![coinlogosu-removebg-preview](https://github.com/user-attachments/assets/517af30c-ad1e-4be9-8986-1f71e1445c8c)
