@@ -1,3 +1,17 @@
+
+
+![coinlogosu-removebg-preview](https://github.com/user-attachments/assets/57e9e8a9-5f21-4835-b1a3-a336feec09eb)
+
+Crap Coin's Targets 🚀
+Community Domination
+Building the funniest, most engaged, and loyal community in the crypto world. Crap Coin isn’t just a coin—it’s a movement!
+
+Skyrocketing Value
+From "crap" to "wow"—our target is to surprise the market by turning laughter into profits.
+
+Global Meme Status
+Become the ultimate meme coin that everyone talks about. Forget the moon, we’re aiming for the galaxy!
+
 GoldCrap Meme Coin Q&A
 Q1: What is GoldCrap Meme Coin?
 A: GoldCrap is a revolutionary meme coin that combines humor, community spirit, and blockchain technology. It's designed to bring fun and potential profits to its holders.
@@ -29,4 +43,4 @@ A: No, GoldCrap is a pre-mined token. You can get it by purchasing or earning th
 Q10: How do I join the GoldCrap community?
 A: Follow us on [social media platforms] and participate in our fun events and discussions. Everyone is welcome to be part of the GoldCrap journey!
 
-![coinlogosu-removebg-preview](https://github.com/user-attachments/assets/517af30c-ad1e-4be9-8986-1f71e1445c8c)
+
