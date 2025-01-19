@@ -2,6 +2,7 @@
 
 ![coinlogosu-removebg-preview](https://github.com/user-attachments/assets/57e9e8a9-5f21-4835-b1a3-a336feec09eb)
 
+https://goldcrapcoin.efafinans.com/home-4/index.html
 Crap Coin's Targets 🚀
 Community Domination
 Building the funniest, most engaged, and loyal community in the crypto world. Crap Coin isn’t just a coin—it’s a movement!
